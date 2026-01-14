@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Pravallika Ponnada
-**A passionate Web Developer||Python Developer**
+**A passionate Web Developer**
 
 Email Me 👉 ✉️ **pravallikaponnada8@live.com** For Communication/Project or Anything Else. 😊😊
 
